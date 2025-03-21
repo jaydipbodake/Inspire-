@@ -1,2 +1,2 @@
 # Inspire-
-Author : Jaydip Bodake
+Author : Jaydip Nivas Bodake
